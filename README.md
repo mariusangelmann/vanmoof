@@ -1,2 +1,3 @@
 # VanMoof Fan Made Designs
-I am just using GitHub as a CDN to deliver designs lmao
+Disclaimer: I am a private person sharing these custom made designs privately - I am not selling them or whatever.
+This is allowed under § 53.1 UrhG.
